@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @kaustubhbth
 - 👀 I’m interested in learning skills
-- 🌱 I’m currently learning aviation security and saftey
 - 💞️ I’m looking to collaborate on managerial work
 - 📫 How to reach me through email kaustubhraj010@gmail.com
 
